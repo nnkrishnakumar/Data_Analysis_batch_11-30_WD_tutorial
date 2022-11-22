@@ -13,8 +13,12 @@ Kindly go thought it...
 For any query kindly email me on artificialintelligenceml714@gmail.com
 
 Warm Regrads
+
 Krishna Kumar
+
 Artificial Intelligence Trainer/Engineer
+
 Client: SO Infotech Pvt Ltd(Ducat)
+
 email: artificialintelligenceml714@gmail.com
 
